@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @mesebilisim
+- 👀 I’m interested in hardware and software
+- 🚀 website: https://mesebilisim.com/
+- 🚀 x: https://x.com/MeseBilisim
+- 🚀 facebook: https://www.facebook.com/mesebilisim/
+- 🚀 instagram: https://www.instagram.com/mesebilisim/
+- 🚀 linkedin: https://www.linkedin.com/in/me%C5%9Fe-bili%C5%9Fim-yaz%C4%B1l%C4%B1m/
+- 🚀 sitemap: https://mesebilisim.com/sitemap.xml
+- 🚀 youtube: https://www.youtube.com/@mesebilisimyazlmmekatronik9485
+- 🚀 pinterest: https://tr.pinterest.com/mesebilisim/
+- 🚀 github: https://github.com/mesebilisim
+- 🚀 github pages: https://mesebilisim.github.io/
+- 📫email: info@mesebilisim.com
